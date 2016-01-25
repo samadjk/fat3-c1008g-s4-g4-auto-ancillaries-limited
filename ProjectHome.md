@@ -1,0 +1,1 @@
+Auto Ancillaries Limited (AAL) is in the business of manufacturing important ancillaries for the two-wheeler and four-wheeler automobile industry.
